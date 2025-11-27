@@ -102,5 +102,3 @@ Gamezone can improve reach and acquisition by optimizing non-direct marketing ch
 
 Gayathri K
 
-Implication:
-Optimizing non-direct channels presents an opportunity to increase reach and acquisition.
